@@ -241,11 +241,11 @@ As fire tests iron, so temptation tests the faith and character of the godly. We
 
 Give careful attention to this truth: we must remain prepared and vigilant if we are to resist the devil and flee when attacked by the smaller, more socially acceptable or easily overlooked temptations. For if we do not resist the smaller temptations, it will not be long before we are giving in to the larger, more obvious temptations. In addition, it is far easier to resist the devil’s purposes and subdue our flesh in the smaller temptations than in the larger ones. Therefore, as soon as the smallest temptation knocks, we ought to meet it outside the door so that it has no opportunity to crack the door open and make way for more and greater evil to come in. It is for this reason that someone said:
 
->“Be on guard against the first, smallest,
-And more easily ignored temptations,
-For they are most easily cured.
-But if they are allowed to enter and find a home,
-In the face of greater temptation
+>“Be on guard against the first, smallest,  
+And more easily ignored temptations,  
+For they are most easily cured.  
+But if they are allowed to enter and find a home,  
+In the face of greater temptation  
 You will lack the strength to endure”
 
 Temptation starts in the mind with a thought or simple suggestion. Next the mind imagines doing or possessing what is being suggested. This is followed by anticipation of the pleasure, fame, fortune or sense of security to be gained. Then with the desires inflamed, the craving for gratification drives consent (James 1:14-15). And so little by little the enemy enters in until he’s in altogether, because he was not resisted outside the door.
