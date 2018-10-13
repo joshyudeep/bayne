@@ -1,12 +1,12 @@
 # imitation of christ pt.1
 
 ###  Table of Contents
-* [Chapter 1 // Introduction](#chapter-1-//-introduction)
-* [Chapter 2 // On thinking humbly of oneself](#chapter-2-//-on-thinking-humbly-of-oneself)
-* [Chapter 3 // On the knowledge of truth](#chapter-3-//-on-the-knowledge-of-truth)
-* [Chapter 4 // On prudence in action](#chapter-4-//-on-prudence-in-action)
+* [Chapter 1 Introduction](#chapter-1-introduction)
+* [Chapter 2 On thinking humbly of oneself](#chapter-2-on-thinking-humbly-of-oneself)
+* [Chapter 3 On the knowledge of truth](#chapter-3-on-the-knowledge-of-truth)
+* [Chapter 4 On prudence in action](#chapter-4-on-prudence-in-action)
 
-### Chapter 1 // Introduction
+### Chapter 1 Introduction
 On the imitation of Christ, and on contempt of the world and all its vanities
 
 “He that follows me shall not walk in darkness” (John 8:12). These are the words of Christ, and they teach us that we must imitate His life and character if we seek true illumination and deliverance from all blindness of heart. Therefore, may we make contemplating and meditating on the life of Jesus Christ our most earnest study.
@@ -23,7 +23,7 @@ It is vanity to seek after and to trust in the riches that shall perish. It is f
 
 Think often (meditate) on this saying, “The eye is not satisfied with seeing, nor the ear with hearing” (Ecclesiastes 1:8). Therefore, devote yourself to turning your heart away from the love of the things that are seen, and to set it upon the things that are not seen (Colossians 3:1-3). For those who follow after their own fleshly lusts defile the conscience and waste the grace of God.
 
-### Chapter 2 // On thinking humbly of oneself
+### Chapter 2 On thinking humbly of oneself
 
 There is naturally in everyone a desire for knowledge and understanding (Ecclesiastes 1:13), yet without a fear of God that compels you to live a godly life, knowledge remains spiritually unprofitable. Therefore, it is better to be a lowly peasant who fears and obeys God than a well educated theologian who proudly expounds on the scriptures yet fails to live up to what he knows. Such a person neglects to honestly evaluate himself according to the truth he knows.
 
@@ -46,7 +46,7 @@ If you want to acquire the kind of knowledge and learning that is spiritually pr
 When it comes to humility, you have learned the highest and most profitable lesson when you truly judge yourself less than others. To think of yourself as nothing – as having less importance than others, and to think always kindly and highly of others – this is godly wisdom and Christ-like perfection. Even if you see your neighbor sin openly or grievously, you ought not to think of yourself as better than he, for you do not know how long you can keep from sinning. All of us are weak and frail (Genesis 8:21). Therefore, with sincerity of mind, hold no one more weak and frail then yourself.
 
 
-### Chapter 3 // On the knowledge of truth
+### Chapter 3 On the knowledge of truth
 
 Happy is the man who is taught by Truth himself, not in parables and catchy phrases that are hard to define, but in a clear and straightforward manner (Psalm 94:12; Numbers 12:8). Sadly, left to our own opinions, feelings, and perceptions concerning God and His truth, we are easily led astray – discerning but little of the truth.
 
@@ -74,7 +74,7 @@ Many perish through empty teaching in the church. We see the truth of this in th
 
 The only one who is truly great is the one who loves God with all his heart, soul, mind, and strength, and who loves his neighbor as himself (Mark 12:29-31). The one who is truly important deems himself small, and counts the highest degrees of honor as nothing. The one who is truly wise counts all earthly things as dung that he may win Christ (Philippians 3:8). And the one who is truly learned is the one who does the will of God to the denial of his own will.
 
-### Chapter 4 // On prudence in action
+### Chapter 4 On prudence in action
 
 When dealing with someone or talking about them with others, we must not trust every word that others speak, or the feelings we have within ourselves toward them (I John 4:1). Rather we ought to cautiously and patiently put their words and our feelings to the test to see how they measure up against the Word and will of God.
 
