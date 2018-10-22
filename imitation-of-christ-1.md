@@ -1,4 +1,4 @@
-# imitation of christ pt.1
+# Imitation of Christ [part 1]
 
 ###  Table of Contents
 * [Chapter 1](#chapter-1)
